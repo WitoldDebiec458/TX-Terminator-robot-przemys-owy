@@ -1,0 +1,1 @@
+# TX-Terminator-robot-przemys-owy
